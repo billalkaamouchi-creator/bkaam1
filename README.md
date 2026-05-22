@@ -1,2 +1,0 @@
-# bkaam1
-partage
